@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @tpetrovic
 - 👀 I’m interested in technology
 - 🌱 I’m currently learning information technology
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me tpetrovic2199@gmail.com
 - 😄 Pronouns: her/she
 - ⚡ Fun fact: Im a big F1 fan
